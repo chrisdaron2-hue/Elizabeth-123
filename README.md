@@ -1,4 +1,4 @@
-<img width="2153" height="1650" alt="image" src="https://github.com/user-attachments/assets/914b9db4-ed9e-442f-8516-d57fbeb6032d" />
+<img width="4069" height="2010" alt="image" src="https://github.com/user-attachments/assets/2912adb1-6bd8-43e6-8aed-e8ec4a40e1f7" />
 
 
 # Hi there, I'm Elizabeth Gyamfi 👋
